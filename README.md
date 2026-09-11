@@ -1,2 +1,0 @@
-# flantchesko-notas
-Flantchesko Notas™
